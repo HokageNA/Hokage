@@ -1,0 +1,2 @@
+# Hokage
+Open to learning 🥺🥺🥺
